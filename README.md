@@ -4,3 +4,5 @@ my name is Mark, i have had several different jobs through the years, and many d
 
 (here's a list of jobs i have had, mainly because I'm having fun remembering most of them.)
 stock-boy at target, CNA at a nursing home, warehouse worker, locksmith, security/barback at a dueling piano bar, beer boy at NFL stadiums, construction project manager(windows, doors, and trim), dishwasher on a ship in Hawaii, deckhand on a boat traveling the Mississippi, pipe fitter, ranch hand at an alpaca farm, main feeder/ zoo keeper at an animal rescue, night auditor at a beachfront hotel, iron worker in ft. lauderdale, 
+
+i am currently enrolled as a student with university of the people in their computer science bachelors program waiting on feb 2018 to start my first classes.
